@@ -1,4 +1,4 @@
 
 ## About me:
 
-Just another economics/finance student trying to take over the world
+Economics and finance student making things I find useful or interesting. 
